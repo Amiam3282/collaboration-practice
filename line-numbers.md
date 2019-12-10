@@ -4,7 +4,7 @@
 #### 4
 #### 5
 #### 6
-#### 7
+#### 7 I disagree Amia is better than Aaliyah
 #### 8
 #### 9
 #### 10
